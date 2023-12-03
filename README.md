@@ -1,2 +1,2 @@
-# RezArth222.github.io
+# Artha.github.io
 I hope u like it:) 
